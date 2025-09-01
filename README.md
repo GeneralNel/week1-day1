@@ -1,0 +1,1 @@
+In class exercise for Week 1 Day 1
